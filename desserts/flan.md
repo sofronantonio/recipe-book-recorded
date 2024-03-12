@@ -13,3 +13,5 @@ Melt the sugar on the stove, then pour it into a round baking dish.
 Beat the eggs in a large bowl, then stir in the remaining ingredients.
 Pour the egg mixture into the baking dish. Cover with foil
 Bake for an hour in the preheated oven
+
+Don't forget to get a coca-cola with it
